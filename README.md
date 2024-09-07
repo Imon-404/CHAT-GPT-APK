@@ -15,5 +15,5 @@
 
 
 ### Developers
-- [**FARHAN ISLAM**](https://www.facebook.com/Imon.132233?mibextid=ZbWKwL)
+- [**FARHAN ISLAM IMON**](https://www.facebook.com/Imon.132233?mibextid=ZbWKwL)
 <br>
